@@ -21,8 +21,7 @@ I guarantee that I have not disclosed anything that should not have been disclos
 
 If anyone finds that kind of situation, you can tell the hr directly, to maintain a fair competitive environment in the United States. I have to guarantee my resume which will not be rejected because someone else uses my projects. If any evidence is needed, please feel free to contact me(LinkedIn). The hiring committee has the right to retract any job offer, any university offer.
 
-
-Book Brainiacs (C#, ASP.NET, ADO.NET, Ajax)(Class Project)(Fall 2018)(One project partner)
+Book Brainiacs(C#, ASP.NET, ADO.NET, Ajax)(Class Project)(Fall 2018)(One project partner)
 •	Designed and implemented shopping cart features. Implemented the function for customers to browse books
 •	Allowed customers to submit contact information. Updated their profile information
 •	Allowed the administrator to manage user roles, book category information, and contact information

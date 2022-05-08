@@ -1,6 +1,7 @@
-# srs project
+# srs project  https://docs.google.com/document/d/1jPYmG-cws3vT0idHN8sUZFASq2-T2IRGz1OXDSG2bgk/edit
 
-https://docs.google.com/document/d/1jPYmG-cws3vT0idHN8sUZFASq2-T2IRGz1OXDSG2bgk/edit
+Statement Audio:
+https://drive.google.com/file/d/1_NaJneoA0KdtLOxSNkWRyoAmAjEwbZMQ/view?usp=sharing
 
 ### For all the projects I listed on my resume, all of them are finished by me, my project partner, my professor independently, no one else helps us. If they are used for any inappropriate purposes(university application, job application, commercial purpose), no matter who you are, I will pursue all the losses.
 

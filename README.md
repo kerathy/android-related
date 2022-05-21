@@ -4,7 +4,8 @@ https://docs.google.com/document/d/1jPYmG-cws3vT0idHN8sUZFASq2-T2IRGz1OXDSG2bgk/
 Statement Audio:
 https://drive.google.com/file/d/1_NaJneoA0KdtLOxSNkWRyoAmAjEwbZMQ/view?usp=sharing
 
-### Please do not affect my life, my career(no limitation!!!), no matter who you are, I do not have any problems. I am not responsible for other's life.
+
+### Please do not affect my life, my career(no limitation!!! I like step by step), no matter who you are, I do not have any problems. I am not responsible for other's life.
 ### Affect other's life, career(Tab - selfish people). None of my business!!! No matter what kind of decision you made, no one forces you to make that decision, it is up to you.
 
 

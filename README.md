@@ -13,7 +13,6 @@ I made the statement on May 7th, 2022(It should be earlier(maybe github can show
 ### For all the projects I listed on my resume, all of them are finished by me, my project partner, my professor independently, no one else helps us. If they are used for any inappropriate purposes(university application, job application, commercial purpose), no matter who you are, I will pursue all the losses.
 
 
-
 If anyone pretends to be me or my friend to obtain any icbc's information through illegal channel, disclose anything that should not be disclosed, I am not responsible for that, no matter who you are, you should be responsible for your own behavior. I am not responsible for other's life, none of my business, no solution can be provided! I did not snitch on anyone, nor did I cooperate with others to snitch on anyone. I did not report anyone before. My family and I did not disclose anything about icbc(including but not limited to clinets' cases, internal stuffs) to anyone. I never discussed my job with anyone(including but not limited to family, friends, professors, etc). I wrote a little about icbc during the master of professional accounting, however, that is not important and not confidential. I did not start my dissertation, and I never disclosed anything that should not be disclosed. My friends never discussed their jobs with me after resignation. Do not influence my and my family members' career. 
 
 
